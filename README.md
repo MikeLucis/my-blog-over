@@ -1,4 +1,0 @@
-# my-blog
-THIS MY FIRST BLOG WEB.
-
-I THINK VREY GOOOOD!
